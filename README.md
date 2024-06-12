@@ -1,5 +1,5 @@
 # 💫 About Me:
-Student @ UWC ISAK Japan<br>Passionate about Computer Science
+UWC ISAK Japan Alumni <br>Passionate about Computer Science
 
 
 ## 🌐 Socials:
